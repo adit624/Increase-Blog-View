@@ -7,6 +7,8 @@ cara ini dapat membuat blog/akun blog kalian terblokir/terban jadi jika ingin me
 terimakasih sudah membaca :)
 Goodbye.
 
+Sebelum menggunakan tools ini pakai VPN dulu ya, vpnnya bebas. kalo saya pakai melon VPN mod, udah lama sih downloadnya tapi untungnya masih bisa dipake :).
+
 
 author:
 # Bjorki199
